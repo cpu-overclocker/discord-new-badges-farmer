@@ -1,0 +1,1 @@
+# discord-new-badges-farmer
